@@ -1,0 +1,1 @@
+current withdrawl amount has been scheduled to next 10days with your prior notice.
